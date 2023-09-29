@@ -1,2 +1,2 @@
 # QUIMICA-G3
-Suyco - léeme...
+Suyco Rivera - UNMSM 
